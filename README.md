@@ -50,7 +50,6 @@ We welcome collaborations, partnerships, and support from individuals and organi
 For more information or to get involved, please contact us at:
 
 **Email**: diego.beltran@sedtolima.edu.co
-**Phone**: +57 3053918660
 
 ---
 
